@@ -25,4 +25,4 @@
 
 总而言之，“黑料不打烊”反映的是公众对真实信息的渴望，但我们不能让情绪绑架判断。未来，真正能长期存活并排名靠前的内容，必须具备信息价值、合规表达与正向引导，才能在搜索引擎中占据稳定高位。
 
-<span style="display:none;">[Canonical link]( )</span>
+<span style="display:none;">[Canonical link](https://github.com/BHD0710/BHD0710-03 )</span>
